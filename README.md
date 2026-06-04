@@ -1,4 +1,4 @@
 ![Profile views](https://komarev.com/ghpvc/?username=domedcourt)
-* sobrang cute mo 
-* i follow back ☺️💝💝..
+* i follow back... ૮₍ ˶ᵔ ᵕ ᵔ˶ ₎ა....
 * probably playing genshin when on
+* 🇵🇭
