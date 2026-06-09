@@ -3,3 +3,4 @@
 * probably playing genshin when on
 * 🇵🇭
 * its so hard to sit in the hoyo area omg its always packed full i cannot stress you enough bro
+* i dont know how to use github someone come help me i wanna add pictures
