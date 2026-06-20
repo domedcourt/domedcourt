@@ -3,4 +3,4 @@
 * probably playing genshin when on
 * 🇵🇭
 * guys i got mavuikas weapon for kaveh
-
+* lets be friends i like friends.... 😳😳
