@@ -3,3 +3,4 @@
 * probably playing genshin when on
 * 🇵🇭
 * i dabble into haikaveh (˶˃ ᵕ ˂˶) 🌱
+  * too busy for anything :'(
