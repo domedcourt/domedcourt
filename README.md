@@ -4,3 +4,4 @@
 * 🇵🇭
 * i dabble into haikaveh (˶˃ ᵕ ˂˶) 🌱
   * too busy for anything :'(
+  * only c+h with people with c+h in their bio unless stated otherwise.. 😚
