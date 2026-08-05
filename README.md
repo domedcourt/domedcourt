@@ -2,4 +2,4 @@
 <p align=center>
 made by @xcr1s1s >_<
 <p align=center>
- ![Profile views](https://komarev.com/ghpvc/?username=domedcourt)
+  <img src=https://komarev.com/ghpvc/?username=domedcourt&label=boxes_and_lines>
