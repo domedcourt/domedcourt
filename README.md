@@ -1,3 +1,6 @@
+<p align=center>
+<i>always love a conversation!!!! lets talk : )</i>
+  
 <img width="1536" height="972" alt="Untitled221_20260805111729" src="https://github.com/user-attachments/assets/7778d0ae-327a-4945-9705-7807cc9a31bf" />
 <p align=center>
 made by @xcr1s1s >_<
