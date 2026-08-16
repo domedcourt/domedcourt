@@ -1,9 +1,9 @@
 <p align=center>
-<i>always love a conversation!!!! lets talk : )</i>
-  
-<img width="1536" height="972" alt="Untitled221_20260805111729" src="https://github.com/user-attachments/assets/7778d0ae-327a-4945-9705-7807cc9a31bf" />
-<p align=center>
-made by @xcr1s1s >_<
+<i>mr kupido..... ako nama'y tulungan mo..</i>
+
+
+  <img width="1536" height="864" alt="Untitled1042_20260816191243" src="https://github.com/user-attachments/assets/188079d6-62a5-43b4-a82d-e0887adab128" />
+
 <p align=center>
   <img src=https://komarev.com/ghpvc/?username=domedcourt&label=boxes_and_lines&color=701705>
 <p align=center>
