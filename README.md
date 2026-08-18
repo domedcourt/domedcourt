@@ -1,5 +1,5 @@
 <p align=center>
-<i>mr kupido..... ako nama'y tulungan mo..</i>
+<i>masakeeeeeeeeeeeeeet</i>
 
 
   <img width="1536" height="864" alt="Untitled1042_20260816191243" src="https://github.com/user-attachments/assets/188079d6-62a5-43b4-a82d-e0887adab128" />
